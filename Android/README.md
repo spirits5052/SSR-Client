@@ -1,1 +1,1 @@
-适用于安卓客户端
+SSR android client
