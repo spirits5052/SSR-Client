@@ -1,2 +1,2 @@
 
-Iphone client please visit our website to download
+please visit our website to download
