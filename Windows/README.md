@@ -1,1 +1,1 @@
-适用于Windows平台客户端
+Windows client
