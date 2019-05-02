@@ -1,1 +1,2 @@
-IOS客户端请到网站网站下载
+
+Iphone client please visit our website to download
